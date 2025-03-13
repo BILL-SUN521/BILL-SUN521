@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BILL-SUN521
-- 👀 I’m interested in 音乐,捣腾电脑
+- 👀 I’m interested in xx,XXXX
 - 🌱 I’m currently learning 统计
-- 💞️ I’m looking to collaborate on 统计和计算机研究
+- 💞️ I’m looking to collaborate on XXXXXXXX
 - 📫 How to reach me 不告诉你哟
 
 <!---
